@@ -1,1 +1,1 @@
-# War-Commander
+<p><a href="https://t.co/HUp9LjZT4V#war_commander_hack" target="_blank"><img style="vertical-align: middle;" src="https://i.imgur.com/jtABW5Q.png" alt="" width="338" height="150" /></a></p>
